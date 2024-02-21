@@ -1,0 +1,5 @@
+![nerds-illustration 1](https://github.com/wamsernn16/dmit.glux/assets/159882836/ccc05ba9-a9e1-4403-840b-97ffc6dde7bc)
+![nerds-logo](https://github.com/wamsernn16/dmit.glux/assets/159882836/21fdae4b-ca26-449c-a90e-12bfa2596e05)
+![картинка1](https://github.com/wamsernn16/dmit.glux/assets/159882836/38b64662-406b-4c1f-bb71-729503b3c939)
+![картинка2](https://github.com/wamsernn16/dmit.glux/assets/159882836/71c4e164-ab40-490a-a656-00151088fa5c)
+![картинка3](https://github.com/wamsernn16/dmit.glux/assets/159882836/ce21d011-1c2d-46e7-9a7c-c0b2e3d09805)
