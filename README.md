@@ -3,3 +3,4 @@
 ![картинка1](https://github.com/wamsernn16/dmit.glux/assets/159882836/38b64662-406b-4c1f-bb71-729503b3c939)
 ![картинка2](https://github.com/wamsernn16/dmit.glux/assets/159882836/71c4e164-ab40-490a-a656-00151088fa5c)
 ![картинка3](https://github.com/wamsernn16/dmit.glux/assets/159882836/ce21d011-1c2d-46e7-9a7c-c0b2e3d09805)
+![cart-icon](https://github.com/wamsernn16/dmit.glux/assets/159882836/efcb6605-533b-43b1-a83f-6268b5b3f30f)
